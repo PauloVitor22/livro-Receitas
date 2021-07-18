@@ -12,4 +12,6 @@ sal e pimenta a gosto
 1 copo de creme de leite
 batata palha a gosto
 
+batata
+
 
